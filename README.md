@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 A 17 y.o. Learning Software Engineer<br><br>𝐇𝐨𝐛𝐛𝐢𝐞𝐬?<br>- Gaming<br>- Movies<br>- Editting<br>- Coding<br>- Music & Audio<br>
 
 

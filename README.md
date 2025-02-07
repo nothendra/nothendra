@@ -1,8 +1,8 @@
 ![Skeletons](https://media1.tenor.com/m/R609lsZUiHgAAAAd/skeleton-among-us-drip.gif)<br>
 
 # About Me:
-*A 17 y.o. Software Engineer<br>*
-*1yr of Learning Experience*
+*A 17 y.o. Software Engineering Student<br>*
+*1yr of Study Experience*
 
 <br>𝐇𝐨𝐛𝐛𝐢𝐞𝐬?<br>- Gaming<br>- Movies<br>- Editting<br>- Coding<br>- Music & Audio<br>- Photography
 

@@ -1,4 +1,4 @@
-![Skeletons](https://tenor.com/view/skeleton-among-us-drip-yessssssssssssssssssssssssssssssssssss-sa-gif-24946313)
+![Skeletons](https://tenor.com/view/skeleton-among-us-drip-yessssssssssssssssssssssssssssssssssss-sa-gif-24946313)<br>
 
 # About Me:
 A 17 y.o. Learning Software Engineer<br><br>𝐇𝐨𝐛𝐛𝐢𝐞𝐬?<br>- Gaming<br>- Movies<br>- Editting<br>- Coding<br>- Music & Audio<br>

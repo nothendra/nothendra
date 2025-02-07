@@ -4,9 +4,7 @@
 *A 17 y.o. Software Engineer<br>*
 *1yr of Learning Experience*
 
-Great interests in Backend Development, Machine Learning, & 
-
-<br>𝐇𝐨𝐛𝐛𝐢𝐞𝐬?<br>- Gaming<br>- Movies<br>- Editting<br>- Coding<br>- Music & Audio<br>
+<br>𝐇𝐨𝐛𝐛𝐢𝐞𝐬?<br>- Gaming<br>- Movies<br>- Editting<br>- Coding<br>- Music & Audio<br>- Photography
 
 
 ## 🌐 Socials:

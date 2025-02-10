@@ -1,5 +1,3 @@
-![Skeletons](https://media1.tenor.com/m/R609lsZUiHgAAAAd/skeleton-among-us-drip.gif)<br>
-
 ```
 {
   "firstName": Raditya,

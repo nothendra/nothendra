@@ -1,5 +1,7 @@
 ![Skeletons](https://media1.tenor.com/m/R609lsZUiHgAAAAd/skeleton-among-us-drip.gif)<br>
 
+#Name's Raditya Mahendra.
+
 # About Me:
 *A 17 y.o. Software Engineering Student<br>*
 *1yr of Study Experience*
